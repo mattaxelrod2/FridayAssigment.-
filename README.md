@@ -1,0 +1,2 @@
+# FridayAssigment.-
+For Friday
